@@ -1,1 +1,1 @@
-# jaemin-Yoo.github.io
+[블로그 이동](https://jaemin-Yoo.github.io)
